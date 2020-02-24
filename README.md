@@ -1,1 +1,1 @@
-# rsschool-cv
+https://pestoff.github.io/rsschool-cv/cv
